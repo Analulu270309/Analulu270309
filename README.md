@@ -1,4 +1,4 @@
-## oiiiee sou a Analulu270309, Bem-vindo(a) ao meu GitHub! ✨👋🏻
+## oiiiee sou a Analuluuu, Bem-vindo(a) ao meu GitHub! ✨👋🏻
 
  ## 🧠 Sobre mim
 🎓 Estudante de tecnologia  
