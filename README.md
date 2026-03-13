@@ -1,5 +1,6 @@
-## oiiiee sou a Analulu270309, Bem-vindo(a) ao meu GitHub! ✨
+## oiiiee sou a Analulu270309, Bem-vindo(a) ao meu GitHub! ✨👋🏻
 
+ ## 🧠 Sobre mim
 🎓 Estudante de tecnologia  
 💻 Aprendendo programação  
 🍰 Amo confeitaria e sonho em abrir minha própria confeitaria  
